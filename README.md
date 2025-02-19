@@ -1,2 +1,2 @@
 # Eldia
-paathiram washing, bed la bashing
+vadapav sharma can eff off
